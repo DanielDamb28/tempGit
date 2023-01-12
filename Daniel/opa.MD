@@ -1,0 +1,1 @@
+## Minha linguagem favorita no momento é java, pois usei no projeto integrador em POO e achei interessante, pois é intuitivo e organizado, e é legal falar que gosto de Java para irritar algumas pessoas 
